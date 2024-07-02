@@ -1,1 +1,2 @@
 Rebecca Bingham
+binghreb@oregonstate.edu
